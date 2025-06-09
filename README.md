@@ -1,2 +1,2 @@
 # What I do
-PhD studen in physical chemistry
+PhD student in physical chemistry
